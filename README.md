@@ -1,16 +1,18 @@
-## Hi there 👋
+<div align=center> 
 
-<!--
-**Liaaam-Apples/Liaaam-Apples** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+![ezgif com-crop](https://github.com/user-attachments/assets/e863702c-3799-4143-90fc-d62f77d8d0fe)
 
-Here are some ideas to get you started:
+▀▄▀▄ 𝑯𝒊 𝑯𝒆𝒍𝒍𝒐 𝒂𝒏𝒅 𝑮𝒐𝒐𝒅 𝒅𝒂𝒚!! ▄▀▄▀
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𝙸𝚗 𝚜𝚝𝚊𝚛𝚝, 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚠𝚑𝚊𝚝𝚎𝚟𝚎𝚛 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 𝚢𝚘𝚞 𝚠𝚊𝚗𝚝. 𝚜𝚑𝚎, 𝚑𝚎, 𝚝𝚑𝚎𝚖. 𝙸 𝚍𝚘𝚗'𝚝 𝚌𝚊𝚛𝚎. 
+
+𝙸'𝚖 𝚟𝚎𝚛𝚢 𝚗𝚎𝚛𝚟𝚘𝚞𝚜 𝚊𝚗𝚍 𝚊𝚗𝚡𝚒𝚘𝚞𝚜 𝚠𝚑𝚎𝚗 𝚒𝚝 𝚌𝚘𝚖𝚎𝚜 𝚝𝚘 𝚒𝚗𝚝𝚎𝚛𝚊𝚌𝚝𝚒𝚗𝚐 𝚠𝚒𝚝𝚑 𝚘𝚝𝚑𝚎𝚛𝚜 𝚘𝚛 𝚒𝚗 𝚊 𝚐𝚛𝚘𝚞𝚙! 
+
+𝙸'𝚖 𝚊 𝚟𝚎𝚛𝚢 𝚋𝚒𝚐 𝚏𝚊𝚗 𝚘𝚏 𝙱𝚕𝚞𝚎 𝙾𝚊𝚔, 𝚜𝚘 𝚍𝚘𝚗'𝚝 𝚋𝚎 𝚌𝚘𝚗𝚏𝚞𝚜𝚎𝚍 𝚠𝚑𝚎𝚗 𝚢𝚘𝚞'𝚕𝚕 𝚜𝚎𝚎 𝚖𝚎 𝚑𝚊𝚟𝚎 𝚊𝚝 𝚕𝚎𝚊𝚜𝚝 𝟸𝟶 𝚍𝚒𝚏𝚏𝚎𝚛𝚎𝚗𝚝 𝚜𝚔𝚒𝚗𝚜 𝚘𝚏 𝚑𝚒𝚖. ՞߹ - ߹՞
+(𝙸 𝚖𝚒𝚐𝚑𝚝 𝚊𝚍𝚍, 𝚝𝚑𝚊𝚝 𝙸 𝚑𝚊𝚟𝚎 𝚝𝚑𝚎 𝚜𝚊𝚖𝚎 𝚠𝚒𝚝𝚑 𝚁𝚎𝚍, 𝚋𝚞𝚝 𝚓𝚞𝚜𝚝 𝚋𝚎𝚌𝚊𝚞𝚜𝚎 𝚝𝚘 𝚖𝚊𝚝𝚌𝚑 𝙽𝚊𝚖𝚎𝚕𝚎𝚜𝚜𝚜𝚑𝚒𝚙𝚙𝚒𝚗𝚐 (↑ω↑) ) 
+
+ ᴛᴏ ᴋɴᴏᴡ ᴍᴏʀᴇ, ᴄʜᴇᴄᴋ ᴍʏ sᴛʀᴀᴡᴘᴀɢᴇ!
+
+↓↓↓
+
+[![red-blue](https://github.com/user-attachments/assets/a1779230-8669-4a79-a2c2-7dc2e13bfe33)](https://liaaam.straw.page)
