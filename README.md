@@ -1,6 +1,6 @@
 <div align=center> 
 
-![ezgif com-crop](https://github.com/user-attachments/assets/e863702c-3799-4143-90fc-d62f77d8d0fe)
+![Guf-ezgif com-crop (1)](https://github.com/user-attachments/assets/d4d03ee7-247a-4b5f-8aea-8a18e329e250)
 
 ▀▄▀▄ 𝑯𝒊 𝑯𝒆𝒍𝒍𝒐 𝒂𝒏𝒅 𝑮𝒐𝒐𝒅 𝒅𝒂𝒚!! ▄▀▄▀
 
