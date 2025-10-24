@@ -16,3 +16,9 @@
 ↓↓↓
 
 [![red-blue](https://github.com/user-attachments/assets/a1779230-8669-4a79-a2c2-7dc2e13bfe33)](https://liaaam.straw.page)
+
+𝙰𝚕𝚜𝚘 𝚖𝚢 𝚊𝚝𝚊𝚋𝚘𝚘𝚔 𝚒 𝚖𝚊𝚍𝚎 (𝚗𝚘𝚝 𝚑𝚒𝚐𝚑 𝚚𝚞𝚊𝚕𝚒𝚝𝚢, 𝚋𝚞𝚝 𝚒 𝚕𝚒𝚔𝚎 𝚒𝚝) 
+
+↓↓↓
+
+[![The_Red_Planet_8 (1)](https://github.com/user-attachments/assets/0ca1c47d-e88d-4617-ae5f-5c4352eb2ee9)](https://liaaam.atabook.org/)
