@@ -1,6 +1,6 @@
 <div align=center> 
 
-<img width="1260" height="835" alt="Untitled6357" src="https://github.com/user-attachments/assets/46def5e7-48ca-40c7-bad6-acb189e5041d" />
+<img width="681" height="451" alt="Untitled6358_20260212184030" src="https://github.com/user-attachments/assets/7cbdd595-2749-45cf-9b2d-54fe398925c0" />
 
 ▀▄▀▄ 𝑯𝒊 𝑯𝒆𝒍𝒍𝒐 𝒂𝒏𝒅 𝑮𝒐𝒐𝒅 𝒅𝒂𝒚!! ▄▀▄▀
 
