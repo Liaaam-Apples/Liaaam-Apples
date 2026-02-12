@@ -1,7 +1,6 @@
 <div align=center> 
 
-![Untitled6182_20251217175216](https://github.com/user-attachments/assets/94e733aa-88b5-44ea-9a9f-03a56ed64c6c)
-
+<img width="1260" height="835" alt="Untitled6357" src="https://github.com/user-attachments/assets/46def5e7-48ca-40c7-bad6-acb189e5041d" />
 
 ▀▄▀▄ 𝑯𝒊 𝑯𝒆𝒍𝒍𝒐 𝒂𝒏𝒅 𝑮𝒐𝒐𝒅 𝒅𝒂𝒚!! ▄▀▄▀
 
