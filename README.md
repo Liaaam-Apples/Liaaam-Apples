@@ -1,5 +1,5 @@
 <div align=center> 
 
-<img width="892" height="558" alt="Untitled6486_20260421222303" src="https://github.com/user-attachments/assets/d0c31a03-9af5-450d-b7e4-329ef1c06c3a" />
+<img width="916" height="691" alt="Untitled6678_20260711092328" src="https://github.com/user-attachments/assets/065382a3-b37d-4d42-9987-8ae3004c3fbc" />
 
-✧─── ･ ｡ﾟ[TikTok](https://www.tiktok.com/@liamiek0): *.✦ .* :[StrawPage](https://pelliam.straw.page). ───✧
+✧─── ･ ｡ﾟ[TikTok](https://www.tiktok.com/@liamiek0): *.✦ .* :[StrawPage](). ───✧
