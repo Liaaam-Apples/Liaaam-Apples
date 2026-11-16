@@ -1,5 +1,5 @@
 <div align=center> 
 
-<img width="916" height="691" alt="Untitled6678_20260711092328" src="https://github.com/user-attachments/assets/065382a3-b37d-4d42-9987-8ae3004c3fbc" />
+<img width="426" height="240" alt="mike-and-zach-piemations" src="https://github.com/user-attachments/assets/c7e38198-98bb-44ec-a2c6-c25be81f18cd" />
 
-✧─── ･ ｡ﾟ[TikTok](https://www.tiktok.com/@liamiek0): *.✦ .* :[StrawPage](https://pellimyliam.straw.page). ───✧
+✧─── ･ ｡ﾟ[TikTok](https://www.tiktok.com/@liamiek0): *.✦ .* :StrawPage.(not available rn) ───✧
